@@ -1,4 +1,4 @@
-👋 Hey there! I'm Ruthvik Mandapati, a passionate coder on a mission to make a positive impact through technology. 🚀
+👋 Hey there! I'm Ruthvik Mandapati, a passionate developer on a mission to make a positive impact through technology. 🚀
 
 💻 As a coder, I thrive on solving problems that have the potential to improve people's lives.
 
